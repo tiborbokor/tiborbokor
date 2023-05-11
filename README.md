@@ -1,5 +1,5 @@
 - 👋 Szia, a profilom: @tiborbokor :relaxed:
-- 👀 Szeretek programozni, de csak jobbi szinten..:smiley:
+- 👀 Szeretek programozni, de csak hobbi szinten..:smiley:
 - 🌱 Persze szoktam használni Linux, és Windows szervert is...
 - 📫 De azokat is csak hobbi szinten. :stuck_out_tongue_winking_eye:
 
